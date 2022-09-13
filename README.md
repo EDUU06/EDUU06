@@ -2,4 +2,4 @@
 - 👋 Olá Meu nome é Eduardo
 - 👀 aluno de um colegio, DB
 - 📫 Mestre em nenhuma aréa
-- Adoro churras
+- 👨‍🦽 Adoro churras
